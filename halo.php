@@ -1,1 +1,1 @@
-halo pak ary
+halo pak ary halo galo alpo 
